@@ -1,0 +1,2 @@
+JOIN MY COMUNITY I LIVE OF SPONSORS :)
+https://discord.gg/PK2UfA4f
